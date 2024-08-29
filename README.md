@@ -1,0 +1,1 @@
+this reqires knowing python for editing the file keep note this was made on chrome os by a 10 yearold(me) so it wont be perfect this was also a 2day project and thats all its free to modify but not reshare.
